@@ -1,0 +1,1083 @@
+CBHCKBNone—230985
+
+第六届中国（厦门）国际跨境电商展览会将凸显对接实效
+
+更新时间：2026-10-12  11:10:44
+
+栏目：AI Builders Digest　主题：第六届中国（厦门）国际跨境电商展览会将凸显对接实效
+
+摘要 中新网厦门5月27日电 (林永传)27日在厦门举行的第六届中国(厦门)国际跨境电商展览会(简称“中跨展”)新闻通气会通报，第六届中跨展将于6月8日至10日在厦门国际会展中心举办。 据厦门市贸促会党组书记、会长，厦门国际商会会长邱尖介绍，第六届中跨展以 “跨境互联 货通全球” 为主题，展览面积超过5万平方米，设置1500余个国际标准展位，全国30多个优质产业带、近千家源头工厂，30多家全球主流跨境电商平台和上百家生态服务商将同台亮相。 邱
+
+正文 中新网厦门5月27日电 (林永传)27日在厦门举行的第六届中国(厦门)国际跨境电商展览会(简称“中跨展”)新闻通气会通报，第六届中跨展将于6月8日至10日在厦门国际会展中心举办。
+
+据厦门市贸促会党组书记、会长，厦门国际商会会长邱尖介绍，第六届中跨展以 “跨境互联 货通全球” 为主题，展览面积超过5万平方米，设置1500余个国际标准展位，全国30多个优质产业带、近千家源头工厂，30多家全球主流跨境电商平台和上百家生态服务商将同台亮相。
+
+邱尖说，本届展会持续夯实 “跨境电商+产业带” 核心发展模式，搭建 “一展览全国好品、一站通全球订单” 的高效对接平台。
+
+展会期间将举办20余场高品质配套活动，聚焦AI智能体、GEO生成引擎优化、RPA自动化等前沿应用，特别关注OPC一人公司如何利用AI实现轻量化全球运营。
+
+展会组委会充分发挥贸促系统海外联络渠道进行客商邀约，持续凸显对接实效。
+
+目前，来自新加坡、泰国、马来西亚、印度尼西亚、菲律宾、韩国、巴西、墨西哥、德国、塞尔维亚、摩尔多瓦、巴基斯坦、赞比亚等国20余家驻华外交机构和境外经贸机构等已确认携采购商来厦对接。
+
+中国(厦门)国际跨境电商展览会，简称“中跨展”，是经中国贸促会批准，国际展览业协会UFI认证的全国性跨境电商专业展会。
+
+前五届累计参展企业超3000家，展览总面积超25万平方米，专业客商超30万人次，意向成交额超百亿元人民币，先后促成了谷歌全球首个跨境电商加速中心、亚马逊全球开店产业带加速器项目、速卖通福建商家运营中心、新蛋厦门运营中心等项目落地。
+
+(完)
+
+农村公路安防生命防护工程顺利验收通车
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%93%A5%E5%93%A5%E8%AE%A1%E5%88%92%E7%BD%91%E9%A1%B5%E7%89%88_%E6%90%AD%E5%AD%90DuMate
+
+开源团队管理员面板，管控成员 AI 编码权限
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%93%A5%E5%93%A5%E7%94%B5%E8%84%91%E7%89%88_%E6%90%AD%E5%AD%90DuMate
+
+线上文旅直播探访小众宝藏景区
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E7%8B%BC%E6%97%B6%E6%97%B6%C2%B7%E5%BD%A9%E8%BD%AF%E4%BB%B6_%E6%90%AD%E5%AD%90DuMate
+
+全球交通电动化政策推进，电动车相关产业链贸易快速扩张
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E7%8B%BC%E8%B6%8B%E5%8A%BF%E5%88%86%E6%9E%90%E8%BD%AF%E4%BB%B6app_%E6%90%AD%E5%AD%90DuMate
+
+美股天气衍生品对冲气候损失服务商，天气衍生品对冲农业气候灾害
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E7%8B%BC%E8%BD%AF%E4%BB%B6_%E6%90%AD%E5%AD%90DuMate
+
+大学生创业项目路演大赛开赛青年创业者展示自身创业项目
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E7%8B%BC%E6%97%B6%E6%97%B6%C2%B7%E5%BD%A9%E8%AE%A1%E5%88%92%E8%BD%AF%E4%BB%B6_%E6%90%AD%E5%AD%90DuMate
+
+开源本地 AI 聊天客户端新增插件生态
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E7%8B%BC%E8%B6%8B%E5%8A%BF%E5%88%86%E6%9E%90%E8%BD%AF%E4%BB%B6_%E6%90%AD%E5%AD%90DuMate
+
+红色文物保护规划发布 传承红色历史记忆
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E7%8B%BC%E8%B6%8B%E5%8A%BF%E5%88%86%E6%9E%90%E8%BD%AF%E4%BB%B6%E4%B8%8B%E8%BD%BD_%E6%90%AD%E5%AD%90DuMate
+
+掌上政务办事大厅上线高频事项实现指尖办理
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E7%8B%BC%E8%AE%A1%E5%88%92%E8%BD%AF%E4%BB%B6_%E6%90%AD%E5%AD%90DuMate
+
+泰国橡胶新胶大量上市，天然橡胶市场供给十分宽松
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E7%8B%BC%E6%97%B6%E6%97%B6%C2%B7%E5%BD%A9%E6%8C%82%E6%9C%BA%E8%BD%AF%E4%BB%B6_%E6%90%AD%E5%AD%90DuMate
+
+大学生创业孵化基地入驻新项目青年创业活力持续上涨
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E7%8B%BC%E6%97%B6%E6%97%B6%C2%B7%E5%BD%A9%E5%88%86%E6%9E%90%E8%BD%AF%E4%BB%B6_%E6%90%AD%E5%AD%90DuMate
+
+开源供应链培训资料下载，赋能开发者自查风险
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%8B%BC%E5%BD%A9%E6%97%B6%E6%97%B6%C2%B7%E5%BD%A9%E8%BD%AF%E4%BB%B6_%E6%90%AD%E5%AD%90DuMate
+
+港口全新泊位建成投产 货物吞吐能力实现新突破
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E7%8B%BC%E8%B6%8B%E5%8A%BF%E5%88%86%E6%9E%90%E8%BD%AF%E4%BB%B6app%E4%B8%8B%E8%BD%BD_%E6%90%AD%E5%AD%90DuMate
+
+美股供应链去风险咨询服务商，各国调整对外农业合作
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E7%8B%BC%E8%B6%8B%E5%8A%BF%E8%BD%AF%E4%BB%B6_%E6%90%AD%E5%AD%90DuMate
+
+泰国橡胶农户弃割现象增加，橡胶短期供给存在扰动
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E7%8B%BC%E8%B6%8B%E5%8A%BF%E8%BD%AF%E4%BB%B6%E5%AE%98%E7%BD%91_%E6%90%AD%E5%AD%90DuMate
+
+中小学秋季研学实践成果展开展展出学生研学收获作品
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E7%8B%BC%E6%8C%82%E6%9C%BA%E8%BD%AF%E4%BB%B6_%E6%90%AD%E5%AD%90DuMate
+
+GitHub 社区投票选出年度热门开源项目
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E7%8B%BC%E8%B6%8B%E5%8A%BF%E8%BD%AF%E4%BB%B6%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD_%E6%90%AD%E5%AD%90DuMate
+
+乡村特色水产养殖丰收捕捞工作顺利开启
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E5%85%8D%E8%B4%B9%E8%AE%A1%E5%88%92%E5%AE%98%E7%BD%91_%E6%90%AD%E5%AD%90DuMate
+
+开源 LFS 存储配额上调，企业大文件上传更加顺畅
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E8%AE%A1%E5%88%92%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E6%90%AD%E5%AD%90DuMate
+
+阿根廷葵花籽库存下降，油脂出口供给有所收紧
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82app%E4%B8%8B%E8%BD%BD_%E6%90%AD%E5%AD%90DuMate
+
+AI 宠物识别开源项目爆火，精准区分猫狗等动物
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E6%89%8B%E6%9C%BA%E7%AB%AF_%E6%90%AD%E5%AD%90DuMate
+
+开源定时安全巡检任务，自动扫描私有仓库漏洞
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E4%B8%8B%E8%BD%BDapp_%E6%90%AD%E5%AD%90DuMate
+
+河湖水质月度监测报告发布多条河段水质指标得到稳步提升改善效果成果展现数据指标
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E5%AE%A2%E6%88%B7%E7%AB%AF%E4%B8%8B%E8%BD%BD_%E6%90%AD%E5%AD%90DuMate
+
+红色研学基地迎来大批量学生团队开展红色研学实践课程学习任务目标
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E8%AE%A1%E5%88%92app%E6%B0%B8%E4%B9%85%E5%85%8D%E8%B4%B9%E7%89%88_%E6%90%AD%E5%AD%90DuMate
+
+全球支付系统多元化推进，多国降低单一系统依赖度
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E7%94%B5%E8%84%91%E7%89%88_%E6%90%AD%E5%AD%90DuMate
+
+肯尼亚芒果库存回落，非洲鲜果出口报价获得支撑
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E8%AE%A1%E5%88%92%E8%BD%AF%E4%BB%B6%E4%B8%8B%E8%BD%BD_%E6%90%AD%E5%AD%90DuMate
+
+开源微服务故障追踪仓库，定位分布式系统报错根源
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E8%AE%A1%E5%88%92%E6%B0%B8%E4%B9%85%E7%BD%91_%E6%90%AD%E5%AD%90DuMate
+
+企业创新实验室揭牌成立 加速技术成果研发
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E8%AE%A1%E5%88%92_%E6%90%AD%E5%AD%90DuMate
+
+开源简历投递脚本，批量推送求职简历到招聘渠道
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E5%AE%A2%E6%88%B7%E7%AB%AF_%E6%90%AD%E5%AD%90DuMate
+
+开源高性能反向代理 AI 会话保持模块上线
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E5%85%8D%E8%B4%B9%E8%AE%A1%E5%88%92_%E6%90%AD%E5%AD%90DuMate
+
+开源迭代看板系统，可视化追踪团队开发周期
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E8%AE%A1%E5%88%92%E7%BD%91%E9%A1%B5%E7%89%88_%E6%90%AD%E5%AD%90DuMate
+
+全球私募股权募资放缓，高利率环境压制并购退出
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E7%BD%91%E7%AB%99_%E6%90%AD%E5%AD%90DuMate
+
+全球股市板块轮动加快，资金在成长价值之间切换
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E7%BD%91%E9%A1%B5%E7%89%88_%E6%90%AD%E5%AD%90DuMate
+
+山地风电项目运维中心建成保障风电场稳定运行发电工作
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E8%8B%B9%E6%9E%9C%E7%89%88%E4%B8%8B%E8%BD%BD_%E6%90%AD%E5%AD%90DuMate
+
+开源团队周报汇总脚本，收集成员产出团队周报
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E4%B8%8B%E8%BD%BDandroid_%E6%90%AD%E5%AD%90DuMate
+
+美股农业建材地产关联服务商，农业设施建材跟随地产下行
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%90%8D%E5%A0%82%E8%AE%A1%E5%88%92%E6%80%8E%E4%B9%88%E7%94%A8%E7%9A%84_%E6%90%AD%E5%AD%90DuMate
+
+科研团队研究农田温室气体减排技术，减少农业生产温室气体排放数量
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E5%AE%98%E7%BD%91%E7%BD%91%E5%9D%80%E5%A4%9A%E5%B0%91_%E6%90%AD%E5%AD%90DuMate
+
+美股海外直播带货服务商，直播电商拉动农产品出口增长
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E8%AE%A1%E5%88%92%E8%BD%AF%E4%BB%B6%E7%A8%B3%E4%B9%88_%E6%90%AD%E5%AD%90DuMate
+
+开源任务进度可视化组件，实时观测智能任务进展
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E5%85%8D%E8%B4%B9%E8%AE%A1%E5%88%92%E5%AE%A2%E6%88%B7%E7%AB%AF_%E6%90%AD%E5%AD%90DuMate
+
+GitHub 安全实验室发布开源组件漏洞实时预警通知工具
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E7%94%B5%E8%84%91%E5%AE%A2%E6%88%B7%E7%AB%AF_%E6%90%AD%E5%AD%90DuMate
+
+城市内河生态治理三期工程开工持续改善河道水环境质量
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E8%AE%A1%E5%88%92%E8%BD%AF%E4%BB%B6%E5%A5%BD_%E6%90%AD%E5%AD%90DuMate
+
+开源轻量化容器面板 AI 容器资源配额管控模块上线
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%90%8D%E5%A0%82%E8%AE%A1%E5%88%92%E5%AE%A2%E6%88%B7%E7%AB%AF_%E6%90%AD%E5%AD%90DuMate
+
+国产新型工业热成像设备国产化，用于设备故障检测安防消防等
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82ios%E6%9C%80%E6%96%B0%E7%89%88%E6%9C%AC_%E6%90%AD%E5%AD%90DuMate
+
+城市共享单车电子围栏落地规范停放
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%90%8D%E5%A0%82%E6%89%8B%E6%9C%BA%E5%AE%A2%E6%88%B7%E7%AB%AF_%E6%90%AD%E5%AD%90DuMate
+
+也门粮食进口依赖度极高，冲突加剧国内粮食短缺
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E5%85%8D%E8%B4%B9%E9%A3%9E%E8%89%87%E8%AE%A1%E5%88%92%E5%AE%98%E7%BD%91_%E6%90%AD%E5%AD%90DuMate
+
+中小企业数字化转型案例发布会分享成功转型经验
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E8%AE%A1%E5%88%92app%E5%AE%98%E7%BD%91%E7%89%88%E4%B8%8B%E8%BD%BD_%E6%90%AD%E5%AD%90DuMate
+
+开源团队管理员面板，管控成员 AI 编码权限
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E5%BD%A9%C2%B7%E7%A5%A8%E4%B8%8B%E8%BD%BDapp%E5%AE%89%E5%8D%93_%E6%90%AD%E5%AD%90DuMate
+
+中医药种质资源库建设推进，收集保存各类中医药植物资源
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%90%8D%E5%A0%82%E8%8B%B9%E6%9E%9Capp_%E6%90%AD%E5%AD%90DuMate
+
+开源 Go 语言轻量分布式锁故障自动恢复方案更新
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E7%BD%91%E9%A1%B5%E6%AD%A3%E5%BC%8F%E7%89%88%E8%AE%A1%E5%88%92_%E6%90%AD%E5%AD%90DuMate
+
+开源 Wiki 知识库 AI 助手，生成完整项目技术文档
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E8%AE%A1%E5%88%92%E5%AE%98%E6%96%B9%E5%AE%A2%E6%9C%8D_%E6%90%AD%E5%AD%90DuMate
+
+美股保险机构久期调整咨询，应对美债收益率上行变化
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%90%8D%E5%A0%82%E5%BD%A9pc%E5%AE%A2%E6%88%B7%E7%AB%AF%E4%B8%8B%E8%BD%BD_%E6%90%AD%E5%AD%90DuMate
+
+城市文创市集定期开市汇聚本土创作者原创商品
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E5%9C%B0%E5%9D%80_%E6%90%AD%E5%AD%90DuMate
+
+开源接口压力测试脚本，校验后端服务承载上限
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E8%AE%A1%E5%88%92%E4%B8%80%E6%A0%B7%E7%9A%84%E8%BD%AF%E4%BB%B6_%E6%90%AD%E5%AD%90DuMate
+
+社区老年送餐服务新增多个居民区点位
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E8%AE%A1%E5%88%92%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99_%E6%90%AD%E5%AD%90DuMate
+
+社区老年智能手机培训课堂开课
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%90%8D%E5%A0%82%E6%B0%B8%E4%B9%85%E5%85%8D%E8%B4%B9%E8%BD%AF%E4%BB%B6_%E6%90%AD%E5%AD%90DuMate
+
+开源前端组件库 AI 属性补全 VSCode 插件新版本上线
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E6%AD%A3%E5%BC%8F%E7%89%88_%E6%90%AD%E5%AD%90DuMate
+
+美股农业债务重组服务商，困境债务投资热度持续上升
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E4%BA%BA%E5%B7%A5%E8%AE%A1%E5%88%92_%E6%90%AD%E5%AD%90DuMate
+
+港口新泊位建成投产 货物吞吐能力上涨
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E6%97%B6%E6%97%B6%C2%B7%E5%BD%A9%E8%AE%A1%E5%88%92%E8%BD%AF%E4%BB%B6_%E6%90%AD%E5%AD%90DuMate
+
+社区老年反诈宣传小分队成立老人宣传提醒老人防范诈骗
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E5%85%8D%E8%B4%B9%E8%AE%A1%E5%88%92%E8%BD%AF%E4%BB%B6_%E6%90%AD%E5%AD%90DuMate
+
+防灾减灾科普进校园 提升学生自救技能
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E8%AE%A1%E5%88%92%E7%BD%91%E5%9D%80%E8%B0%81%E7%9F%A5%E9%81%93_%E6%90%AD%E5%AD%90DuMate
+
+我国太阳能电池光电转换效率再度刷新世界纪录中国青年网...
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E5%AE%98%E7%BD%91%E8%AE%A1%E5%88%92%E4%B8%8B%E8%BD%BD_%E6%90%AD%E5%AD%90DuMate
+
+白俄罗斯钾肥长协订单占比提升，化肥现货市场流通量收缩
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E6%80%8E%E4%B9%88%E4%B8%8A%E4%B8%8D%E5%8E%BB%E4%BA%86_%E6%90%AD%E5%AD%90DuMate
+
+安全生产隐患排查专项行动启动 压紧压实企业主体责任
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E6%AD%A3%E5%BC%8F%E7%89%88%E8%BD%AF%E4%BB%B6_%E6%90%AD%E5%AD%90DuMate
+
+美股挂钩产品设计服务商，高利率改变农产品挂钩产品设计
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E8%AE%A1%E5%88%92%E6%89%8B%E6%9C%BA%E8%BD%AF%E4%BB%B6_%E6%90%AD%E5%AD%90DuMate
+
+百度 GenFlow4.0 智能体上线，跨应用完成复杂任务
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E8%B0%81%E6%9C%89%E5%BD%A9%E5%90%8D%E5%A0%82%E7%BD%91%E5%9D%80_%E6%90%AD%E5%AD%90DuMate
+
+美股粮食贸易本币结算服务商，人民币计价试点持续扩容
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82app%E5%9C%A8%E5%93%AA%E9%87%8C%E4%B8%8B%E8%BD%BD%3F_%E6%90%AD%E5%AD%90DuMate
+
+智利车厘子出口季临近，南半球鲜果贸易蓄势待发
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91_%E6%90%AD%E5%AD%90DuMate
+
+全球气候融资流向农业，助力多国农业抗灾能力建设
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82app%E8%AE%A1%E5%88%92%E5%AE%98%E6%96%B9_%E6%90%AD%E5%AD%90DuMate
+
+国产高端医疗器械走出国门远销海外
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82app%E8%AE%A1%E5%88%92%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E6%90%AD%E5%AD%90DuMate
+
+外贸企业海外市场开拓补贴申领通道开放线上申报
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E7%BE%A4%E5%8F%91%E6%95%99%E7%A8%8B_%E6%90%AD%E5%AD%90DuMate
+
+开源视频剪辑脚本仓库，代码自动裁剪拼接影片素材
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E6%80%8E%E4%B9%88%E4%B8%8B%E8%BD%BD%E4%B8%8D%E4%BA%86_%E6%90%AD%E5%AD%90DuMate
+
+美股农业纪录片出海服务商，农业纪录片争夺全球流媒体用户
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E5%85%8D%E8%B4%B9%E8%AE%A1%E5%88%92%E8%BD%AF%E4%BB%B6%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD_%E6%90%AD%E5%AD%90DuMate
+
+科创孵化器新项目入驻签约仪式举行
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E5%85%8D%E8%B4%B9%E8%AE%A1%E5%88%92%E8%BD%AF%E4%BB%B6%E5%AE%98%E7%BD%91_%E6%90%AD%E5%AD%90DuMate
+
+全球外贸中小微企业扶持政策，信贷担保保险多工具共同发力
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%90%8D%E5%A0%82%E8%8B%B9%E6%9E%9C%E6%89%8B%E6%9C%BAapp%E4%B8%8B%E8%BD%BD40%E7%89%88%E6%9C%AC_%E6%90%AD%E5%AD%90DuMate
+
+全球跨境气候风险咨询发展，帮助企业评估气候带来各类风险
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E7%94%B5%E8%84%91%E7%89%88%E4%B8%8B%E8%BD%BD%E7%BD%91%E5%9D%80_%E6%90%AD%E5%AD%90DuMate
+
+开源缓存性能优化工具箱，提升缓存访问响应速度
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E9%87%8D%E5%BA%86%E6%97%B6%E6%97%B6%C2%B7%E5%BD%A9%E8%AE%A1%E5%88%92_%E6%90%AD%E5%AD%90DuMate
+
+全球农业生物制剂贸易增长，生物农药跨境流通扩大
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E6%89%8B%E6%9C%BA%E7%89%88%E4%B8%8B%E8%BD%BD_%E6%90%AD%E5%AD%90DuMate
+
+美股坚果需求增长服务商，健康消费带动坚果进口需求上升
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%2C%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E5%BD%A9_%E6%90%AD%E5%AD%90DuMate
+
+农机跨区作业供需对接会顺利召开
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%90%8D%E5%A0%82%E8%B7%9F%E8%AE%A1%E5%88%92%E6%8A%80%E5%B7%A7_%E6%90%AD%E5%AD%90DuMate
+
+乌克兰粮食码头修复进度缓慢，谷物外运不及市场预期
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82app%E5%AE%89%E5%8D%93%E7%89%88_%E6%90%AD%E5%AD%90DuMate
+
+开源 Go 语言轻量分布式锁故障自动恢复方案更新
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82ios%E7%89%88_%E6%90%AD%E5%AD%90DuMate
+
+开源供应链培训资料下载，赋能开发者自查风险
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E5%BD%A9%C2%B7%E7%A5%A8%E8%AE%A1%E5%88%92%E8%BD%AF%E4%BB%B6_%E6%90%AD%E5%AD%90DuMate
+
+生活必需品价格监测日报发布实时掌握物价变动趋势
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E5%88%86%E5%88%86%E5%BD%A9%E5%BB%B6%E8%BF%9F_%E6%90%AD%E5%AD%90DuMate
+
+美国核桃海运拥堵缓解，北美坚果交货周期回归正常水平
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E9%87%8D%E5%BA%86%E6%97%B6%E6%97%B6%C2%B7%E5%BD%A9_%E6%90%AD%E5%AD%90DuMate
+
+非遗技艺短视频系列上线 扩大传统文化传播覆盖面
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E8%AE%A1%E5%88%92%E8%BD%AF%E4%BB%B6%E7%94%B5%E8%84%91%E7%89%88_%E6%90%AD%E5%AD%90DuMate
+
+开源前端 AI 组件市场仓库对外开放源码
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%90%8D%E5%A0%82%E6%80%8E%E4%B9%88%E9%80%89%E6%8B%A9%E8%AE%A1%E5%88%92_%E6%90%AD%E5%AD%90DuMate
+
+乡村农耕运动会开赛 村民比拼传统农事趣味项目
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E5%AE%98%E7%BD%91%E5%85%8D%E8%B4%B9%E4%B8%8B%E8%BD%BD_%E6%90%AD%E5%AD%90DuMate
+
+传统老字号创新营销模式 收获年轻消费者青睐
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E5%85%8D%E8%B4%B9%E8%AE%A1%E5%88%92%E5%AE%98%E7%BD%9150_%E6%90%AD%E5%AD%90DuMate
+
+引力波观测目录扩容，多项成果揭开黑洞演化相关奥秘中国青年网...
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82app%E6%9C%80%E6%96%B0%E7%89%88%E6%9C%AC_%E6%90%AD%E5%AD%90DuMate
+
+全球 LNG 长协合同占比提升，锁定价格规避现货剧烈波动
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E6%B0%B8%E4%B9%85%E5%85%8D%E8%B4%B9%E8%BD%AF%E4%BB%B6_%E6%90%AD%E5%AD%90DuMate
+
+澳大利亚小麦品质分化，干旱造成部分小麦降等
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E4%B9%8B%E5%90%8D%E5%A0%82app%E8%AE%A1%E5%88%92%E5%AE%98%E6%96%B9%E7%BD%91%E7%AB%99_%E6%90%AD%E5%AD%90DuMate
+
+文旅金秋嘉年华夜间专场精彩上演
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E8%AE%A1%E5%88%92app%E8%8B%B9%E6%9E%9C_%E6%90%AD%E5%AD%90DuMate
+
+农村电商站点实现行政村全覆盖 农产品销路持续拓宽
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82app%E8%8B%B9%E6%9E%9C%E4%B8%8B%E8%BD%BD_%E6%90%AD%E5%AD%90DuMate
+
+校园安全应急疏散演练全覆盖 提升师生逃生自救能力
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E6%9C%80%E6%96%B0%E7%89%88%E8%AE%A1%E5%88%92_%E6%90%AD%E5%AD%90DuMate
+
+开源定时流水线任务工具，设置流水线执行周期
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E7%94%B5%E8%84%91%E7%BD%91%E9%A1%B5%E7%89%88_%E6%90%AD%E5%AD%90DuMate
+
+网络反诈提醒虚假中奖诈骗，陌生中奖信息不要相信切勿缴纳手续费
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%A6%82%E4%BD%95%E8%BF%9B%E5%85%A5%E5%BD%A9%E5%90%8D%E5%A0%82%E5%AE%98%E7%BD%91%E6%9B%B4%E6%96%B0_%E6%90%AD%E5%AD%90DuMate
+
+人工智能素养课程走进中小学 培育数字人才
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E5%AE%98%E6%96%B9%E5%B9%B3%E5%8F%B0_%E6%90%AD%E5%AD%90DuMate
+
+国内科普基地夜间开放试点，推出夜间科普活动丰富科普形式
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E8%AE%A1%E5%88%92%E5%AE%98%E6%96%B9%E8%BD%AF%E4%BB%B6_%E6%90%AD%E5%AD%90DuMate
+
+气象秋季暴雨预警发布提醒防范次生地质灾害
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%90%8D%E5%A0%82%E8%AE%A1%E5%88%92_%E6%90%AD%E5%AD%90DuMate
+
+跨区域农产品产销联盟成立稳定供货链
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E5%BD%A9%E6%8A%80%E5%B7%A7_%E6%90%AD%E5%AD%90DuMate
+
+全球老龄化推高财政压力，养老金改革成为多国议题
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E5%AE%98%E7%BD%91%E8%B0%81%E6%9C%89_%E6%90%AD%E5%AD%90DuMate
+
+开源本地语音合成网页端开放源代码
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E5%AE%98%E7%BD%91%E5%9C%B0%E5%9D%80_%E6%90%AD%E5%AD%90DuMate
+
+开源 Python 高性能 AI 超参搜索调优库迎来版本迭代
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E6%89%8B%E6%9C%BA%E7%89%88%E5%AE%98%E7%BD%91_%E6%90%AD%E5%AD%90DuMate
+
+白俄罗斯谷物经铁路输往中亚，陆路粮食贸易占比提升
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%90%8D%E5%A0%82%E8%AE%A1%E5%88%92%E6%80%8E%E4%B9%88%E7%94%A8_%E6%90%AD%E5%AD%90DuMate
+
+协和团队研究证实，口腔内细菌可迁移至肠道提升肠癌风险中国青年网...
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E5%85%8D%E8%B4%B9%E8%AE%A1%E5%88%92%E5%AE%98%E7%BD%915.0%E8%8B%B9%E6%9E%9C_%E6%90%AD%E5%AD%90DuMate
+
+文旅短视频创作大赛激发城市宣传活力
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BDAPP_%E6%90%AD%E5%AD%90DuMate
+
+中小企业惠企政策线上宣讲会举行解读最新扶持红利政策
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E8%80%81%E7%89%88%E6%9C%AC%E5%BD%A9%E5%90%8D%E5%A0%82%E8%AE%A1%E5%88%92%E8%BD%AF%E4%BB%B6_%E6%90%AD%E5%AD%90DuMate
+
+开源本地大模型推理多实例动态扩缩容脚本更新
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%90%8D%E5%A0%82pc%E5%AE%A2%E6%88%B7%E7%AB%AF_%E6%90%AD%E5%AD%90DuMate
+
+城市滨水公园灯光秀开启 点亮城市夜间文旅经济
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E8%AE%A1%E5%88%92app%E5%AE%89%E5%8D%93%E5%85%8D%E8%B4%B9%E4%B8%8B%E8%BD%BD_%E6%90%AD%E5%AD%90DuMate
+
+开源视频剪辑脚本仓库，代码自动裁剪拼接影片素材
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E5%AE%89%E5%8D%93%E7%89%88%E6%9C%AC_%E6%90%AD%E5%AD%90DuMate
+
+非遗手艺人直播带货专场开播线上售卖非遗文创特色产品
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E5%AE%98%E7%BD%91%E7%BD%91%E9%A1%B5%E8%AE%A1%E5%88%92_%E6%90%AD%E5%AD%90DuMate
+
+青少年人工智能科普营开营 体验前沿科技项目乐趣
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E5%BE%A1%E5%BD%A9%E8%BD%A9%E5%8C%BA%E5%88%AB_%E6%90%AD%E5%AD%90DuMate
+
+中关村论坛顺利闭幕，二十一项前沿科技成果对外发布
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E4%B9%8B%E5%90%8D%E5%A0%82app%E8%AE%A1%E5%88%92%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E6%90%AD%E5%AD%90DuMate
+
+美股农业大棚钢材贸易摩擦咨询服务商，钢铁出口格局变化
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E4%B8%8B%E8%BD%BD%E7%BD%91%E7%AB%99%E5%9C%A8%E5%93%AA%E9%87%8C_%E6%90%AD%E5%AD%90DuMate
+
+泰国木薯淀粉库存回落，工业原料出口报价有所抬升
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82%E8%AE%A1%E5%88%92%E6%80%8E%E4%B9%88%E7%9C%8B_%E6%90%AD%E5%AD%90DuMate
+
+开源多模态 RAG 知识库图文混合问答功能开源上线
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E8%8B%B9%E6%9E%9C%E7%89%88%E5%BD%A9%E5%90%8D%E5%A0%82%E8%AE%A1%E5%88%92%E5%AE%98%E7%BD%91_%E6%90%AD%E5%AD%90DuMate
+
+开源多租户知识库 AI 问答会话数据统计方案上线
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%E5%90%8D%E5%A0%82app%E8%AE%A1%E5%88%92%E5%AE%98%E7%BD%91_%E6%90%AD%E5%AD%90DuMate
+
+美股仓储叉车设备服务商，叉车物流设备出口实现持续增长
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%BB%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%B9%B3%E5%8F%B0%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+野生植物保护调查工作开展 摸清本地资源底数
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%B9%B3%E5%8F%B0%E5%AF%B9%E5%88%B7%E8%B5%9A%E5%BD%A9%E9%87%91_%E6%90%AD%E5%AD%90DuMate
+
+全球多地发布空气污染报告，秋冬季大气污染防控压力仍存在
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E5%B9%B3%E5%8F%B0%E6%BA%90%E7%A0%81_%E6%90%AD%E5%AD%90DuMate
+
+开源 Go 语言微服务配置变更 AI 风险校验更新版本
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%BD%91%E4%B8%8A%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E9%AA%97%E5%B1%80_%E6%90%AD%E5%AD%90DuMate
+
+城市排水泵站汛期 24 小时值守全力排涝防范内涝
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E5%A5%97%E5%88%A9%E5%B7%A5%E4%BD%9C%E5%AE%A4_%E6%90%AD%E5%AD%90DuMate
+
+全球跨境农业保险合作加强，分担多国农业灾害带来风险
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%B9%B8%E8%BF%9028%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+疾控部门科普手足口病秋冬季防控，托幼机构做好消毒晨检防控工作
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E5%A5%97%E5%BD%A9%E9%87%91_%E6%90%AD%E5%AD%90DuMate
+
+城市轨道交通延长线开工建设
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E4%B8%A4%E4%B8%AA%E5%BD%A9%C2%B7%E7%A5%A8%E5%B9%B3%E5%8F%B0%E5%AF%B9%E5%88%B7%E5%A5%97%E5%88%A9_%E6%90%AD%E5%AD%90DuMate
+
+远程支教项目落地偏远山区 共享城市优质教育师资
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%B9%B3%E5%AE%89%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+绿色低碳社区示范项目验收完工打造低碳生活样板示范小区
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E9%9D%A0%E8%B0%B1%E5%90%97_%E6%90%AD%E5%AD%90DuMate
+
+新疆出台配套扶持政策，引导新能源领域扩大有效投资规模中国经济网...
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%BD%91%E7%BB%9C%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E5%A5%97%E5%88%A9_%E6%90%AD%E5%AD%90DuMate
+
+数字政务自助终端下沉乡镇 业务就近办理成为现实
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%9B%BE%E8%85%BE%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+黑龙江粮食产量突出，全国每九碗米饭一碗产自黑龙江省中国金融新...
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%AB%98%E9%A2%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+农田节水灌溉项目完工降低用水成本
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%A6%82%E4%BD%95%E5%AF%B9%E5%88%B7%E5%92%8C%E5%80%BC%E8%B5%9A%E9%92%B1_%E6%90%AD%E5%AD%90DuMate
+
+特朗普重申美国立场，核心目标阻止伊朗获取核武器装备
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%B9%B3%E5%8F%B0%E5%AF%B9%E5%88%B7%E6%80%8E%E4%B9%88%E6%93%8D%E4%BD%9C_%E6%90%AD%E5%AD%90DuMate
+
+开源定时流水线任务工具，设置流水线执行周期
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%A4%A7%E6%A6%82%E7%8E%87%E5%AF%B9%E5%88%B7%E6%8A%80%E5%B7%A7_%E6%90%AD%E5%AD%90DuMate
+
+开源 Go 语言 API 网关 AI 流量配额超限智能调度更新版本
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91vr%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+政务自助终端新增社保业务办理 就近查询社保信息
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%8D%9A%E5%BD%A9%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+美股科研仪器支撑进口服务商，农业科研检测支撑仪器仪表进口
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%B9%E5%88%B7%E5%BD%A9%C2%B7%E7%A5%A8%E9%AA%97%E5%B1%80_%E6%90%AD%E5%AD%90DuMate
+
+美股农产健身食品配套服务商，运动器材出口带动配套贸易
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E5%A5%97%E5%88%A9_%E6%90%AD%E5%AD%90DuMate
+
+全球元宇宙投资热度降温，相关企业缩减元宇宙业务投入
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E9%BE%99%E8%99%8E_%E6%90%AD%E5%AD%90DuMate
+
+DeerFlow 登上开源热榜，低代码编排 AI 自动化任务
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E6%B5%81%E6%B0%B4_%E6%90%AD%E5%AD%90DuMate
+
+中小企业数字化转型补贴发放 加速企业智能化升级
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%B9%E5%88%B7%E5%BD%A9%C2%B7%E7%A5%A8%E5%88%86%E7%BA%A2_%E6%90%AD%E5%AD%90DuMate
+
+加拿大亚麻籽健康概念普及，特种油料国际需求持续上涨
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%B9%B3%E5%8F%B0%E6%80%8E%E4%B9%88%E5%AF%B9%E5%88%B7%E5%A5%97%E5%88%A9_%E6%90%AD%E5%AD%90DuMate
+
+掌上政务小程序功能上新更多业务掌上办结
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%B9%B3%E5%8F%B0%E5%AF%B9%E5%88%B7%E8%B5%9A%E5%B7%AE%E4%BB%B7_%E6%90%AD%E5%AD%90DuMate
+
+城市排水管网清淤疏通完工提升管网排水通行承载能力
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E8%B4%9F%E7%9B%88%E5%88%A91%E6%AF%941_%E6%90%AD%E5%AD%90DuMate
+
+国际跨境河流合作会议召开，协商跨境水资源开发保护事宜
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%8F%B0%E5%AD%90%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+国内中小学劳动教育实践基地增加，强化学生劳动实践教育
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E5%A6%82%E4%BD%95%E8%B5%9A%E9%92%B1_%E6%90%AD%E5%AD%90DuMate
+
+印度大米出口政策调整，全球稻米贸易格局发生改变
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%B9%E5%88%B7%E5%BD%A9%C2%B7%E7%A5%A8%E9%AA%97%E5%8F%8D%E6%B0%B4_%E6%90%AD%E5%AD%90DuMate
+
+多地整治城市车窗抛物行为，处罚车窗抛物守护城市环境卫生面貌
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E8%B4%9F%E7%9B%88%E5%88%A9%E5%B9%B3%E5%8F%B0_%E6%90%AD%E5%AD%90DuMate
+
+海洋渔业养殖新模式推广 提升养殖产量品质
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E9%A6%96%E5%85%85%E5%A5%97%E5%88%A9_%E6%90%AD%E5%AD%90DuMate
+
+国内种业知识产权保护强化，打击仿冒套牌种子违法行为
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%B9%B3%E5%8F%B0%E5%AF%B9%E5%88%B7%E6%B0%B4_%E6%90%AD%E5%AD%90DuMate
+
+全球双边投资条约现代化修订，平衡保护投资与监管政策空间
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%912021%E5%AF%B9%E5%88%B7%E5%BD%A9%C2%B7%E7%A5%A8%E5%B9%B3%E5%8F%B0_%E6%90%AD%E5%AD%90DuMate
+
+中医药种质资源库建设推进，收集保存各类中医药植物资源
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E8%AE%A1%E5%88%92_%E6%90%AD%E5%AD%90DuMate
+
+多地推进城市老旧管网更新改造，降低城市供水供气泄漏风险
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%B9%E5%88%B7%E5%BD%A9%C2%B7%E7%A5%A8%E5%B7%A5%E4%BD%9C%E5%AE%A4_%E6%90%AD%E5%AD%90DuMate
+
+开源物联网数据 AI 预测分析框架发布
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E7%BD%91%E7%AB%99%E5%AF%B9%E5%88%B7%E5%A5%97%E5%88%A9_%E6%90%AD%E5%AD%90DuMate
+
+全球 AI 算力投资热潮，相关企业资本开支维持高位
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E8%B5%9A%E5%B9%B3%E5%8F%B0%E6%B5%81%E6%B0%B4%E6%98%AF%E7%9C%9F%E7%9A%84%E5%90%97_%E6%90%AD%E5%AD%90DuMate
+
+海上航运减排方案正式落地实施
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E5%A5%97%E5%88%A9%E5%B9%B3%E5%8F%B0%E5%88%86%E7%BA%A2_%E6%90%AD%E5%AD%90DuMate
+
+农村电商直播基地助农专场开播
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E4%B8%A4%E4%B8%AA%E5%BD%A9%C2%B7%E7%A5%A8%E8%BD%AF%E4%BB%B6%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+开源视频剪辑脚本仓库，代码自动裁剪拼接影片素材
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E4%BD%A3%E9%87%91_%E6%90%AD%E5%AD%90DuMate
+
+美股农药制造商海外订单稳定，发展中国家农业带动进口
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E5%A5%97%E7%8E%B0_%E6%90%AD%E5%AD%90DuMate
+
+全球可再生能源目标上调，光伏风电装机目标持续不断提高
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%97%B6%E6%97%B6%C2%B7%E5%BD%A9%E5%AF%B9%E5%88%B7%E5%BD%A9%C2%B7%E7%A5%A8%E8%BF%94%E4%BD%A3_%E6%90%AD%E5%AD%90DuMate
+
+绿色建筑博览会开展展示前沿低碳建造技术
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E8%B4%9F%E7%9B%88%E5%88%A9%E6%8A%80%E5%B7%A7_%E6%90%AD%E5%AD%90DuMate
+
+全球房地产投资降温，跨境不动产投资规模明显回落
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E5%90%88%E4%BD%9C_%E6%90%AD%E5%AD%90DuMate
+
+国内培育耐储果蔬新品种，延长果蔬保鲜期减少产后损耗量
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E4%BB%80%E4%B9%88%E5%8F%AB%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+多地开展打击盗版图书行动，保护作者知识产权合法权益
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E5%A5%97%E5%88%A9%E6%8A%80%E6%9C%AF_%E6%90%AD%E5%AD%90DuMate
+
+美股农业大棚钢材贸易商遭遇摩擦，贸易保护主义抬头
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8ab%E4%BB%93%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+疾控部门科普恙虫病预防，野外活动做好个人防虫防护措施
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E5%88%86%E7%BA%A2%E8%83%BD%E8%B5%9A%E9%92%B1%E5%90%97_%E6%90%AD%E5%AD%90DuMate
+
+全球 ESG 投资规模增速放缓，收益率争议引发讨论
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%B9%B3%E5%8F%B0%E6%80%8E%E6%A0%B7%E5%AF%B9%E5%88%B7%E5%A5%97%E5%88%A9_%E6%90%AD%E5%AD%90DuMate
+
+开源物联网边缘计算调度框架，分配终端算力资源
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E6%95%99%E7%A8%8B_%E6%90%AD%E5%AD%90DuMate
+
+阿根廷蓝莓库存回落，拉美浆果出口报价有所抬升
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E6%B5%81%E6%B0%B4%E6%8A%80%E5%B7%A7_%E6%90%AD%E5%AD%90DuMate
+
+澳大利亚小麦出口船期集中投放，压制国际小麦盘面价格
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E5%A5%97%E5%88%A9%E6%95%99%E7%A8%8B_%E6%90%AD%E5%AD%90DuMate
+
+开源里程碑提醒工具，精准推送开发节点通知
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%9188%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E4%BD%A3%E9%87%91_%E6%90%AD%E5%AD%90DuMate
+
+农村公路安防生命防护工程验收通车
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%BD%91%E7%BB%9C%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E7%8A%AF%E6%B3%95%E5%90%97%3F_%E6%90%AD%E5%AD%90DuMate
+
+开源跨平台网页 AI 表格增量抓取导出工具上线
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E8%B5%9A%E8%BF%94%E7%82%B9%E5%8F%AF%E4%BB%A5%E5%90%97_%E6%90%AD%E5%AD%90DuMate
+
+GitHub 仓库文件预览新增 AI 摘要功能
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%B9%B3%E5%8F%B0%E6%80%8E%E4%B9%88%E5%AF%B9%E5%88%B7%E5%88%86%E7%BA%A2_%E6%90%AD%E5%AD%90DuMate
+
+开源云原生 AI 流水线资源用量智能预估模块
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%A6%82%E4%BD%95%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+生活必需品价格监测日报发布实时掌握物价变动趋势
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%8F%8D%E6%B0%B4%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+美股农户直连海外服务商，跨境电商帮助农户直连海外消费者
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%B9%B8%E8%BF%90%E9%A3%9E%E8%89%87%E6%80%8E%E4%B9%88%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+全球保险机构增配私人信贷，博取更高利差收益水平
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E8%BF%9D%E6%B3%95%E5%90%97_%E6%90%AD%E5%AD%90DuMate
+
+食品快检设备进驻农贸市场 守护群众舌尖上的安全
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E8%BD%AF%E4%BB%B6_%E6%90%AD%E5%AD%90DuMate
+
+开源合同文档对比仓库，识别两份法律文件差异
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E6%80%8E%E4%B9%88%E5%AF%B9%E5%88%B7%E6%B5%81%E6%B0%B4%E8%B5%9A%E9%92%B1_%E6%90%AD%E5%AD%90DuMate
+
+全球外债风险预警体系建设，帮助低收入国家识别债务风险
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E9%A3%8E%E6%8E%A7_%E6%90%AD%E5%AD%90DuMate
+
+美股数据本地化合规咨询服务商，抬高农企出海成本
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%BD%91%E7%BB%9C%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+开源内网 AI 语音助手多设备同步方案更新
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E8%B4%9F%E7%9B%88%E5%88%A9%E5%AF%B9%E5%88%B7%E6%98%AF%E5%95%A5_%E6%90%AD%E5%AD%90DuMate
+
+开源定时流水线任务工具，设置流水线执行周期
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E4%BA%8F%E6%8D%9F%E5%88%86%E7%BA%A2%E5%B9%B3%E5%8F%B0_%E6%90%AD%E5%AD%90DuMate
+
+专家科普提醒，夜间血压居高不下人群要警惕盐敏感问题中国新闻网
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E5%B9%B3%E5%8F%B0%E7%BD%91%E5%9D%80_%E6%90%AD%E5%AD%90DuMate
+
+开源视频剪辑脚本仓库，代码自动裁剪拼接影片素材
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%B9%B3%E5%8F%B0%E5%AF%B9%E5%88%B7%E8%B5%9A%E6%B5%81%E6%B0%B4%E7%BE%A4_%E6%90%AD%E5%AD%90DuMate
+
+全球谷物基差扩大，港口物流扰动现货流通效率下降
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%B9%B3%E5%8F%B0%E5%AF%B9%E5%88%B7%E6%80%8E%E4%B9%88%E8%B5%9A%E9%92%B1_%E6%90%AD%E5%AD%90DuMate
+
+分布式锁管理监控仪表盘，观测多进程并发运行状态
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E4%BB%80%E4%B9%88%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E5%8F%AF%E4%BB%A5%E8%B5%9A%E9%92%B1_%E6%90%AD%E5%AD%90DuMate
+
+校园安全隐患全面排查行动开展筑牢校园安全防护防线
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E6%94%B9ip_%E6%90%AD%E5%AD%90DuMate
+
+乌干达玉米增产，东非区域粮食贸易流通更加顺畅
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9_%E6%90%AD%E5%AD%90DuMate
+
+开源视频剪辑脚本仓库，代码自动裁剪拼接影片素材
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E6%B5%81%E6%B0%B4%E6%80%8E%E6%A0%B7%E8%B5%9A%E9%92%B1_%E6%90%AD%E5%AD%90DuMate
+
+城市林荫步道改造完工 夏日出行清凉舒适
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E4%B8%89%E5%B9%B3%E5%8F%B0%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+开源分布式缓存 AI 持久化备份自动调度方案开源
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91ig%E5%BD%A9%C2%B7%E7%A5%A8%E5%B9%B3%E5%8F%B0%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+开源内网穿透集群负载均衡方案开源
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E6%89%BE%E4%BA%BA_%E6%90%AD%E5%AD%90DuMate
+
+美股办公耗材需求回落服务商，农业办公耗材需求整体偏弱
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%B9%B3%E5%8F%B0%E5%AF%B9%E5%88%B7%E5%A5%97%E5%88%A9%E5%B0%81%E5%8F%B7_%E6%90%AD%E5%AD%90DuMate
+
+开源跨平台 AI 文档问答批量导出结果队列桌面客户端上线
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%B9%B3%E5%8F%B0%E5%AF%B9%E5%88%B7%E5%A5%97%E5%88%A9_%E6%90%AD%E5%AD%90DuMate
+
+国产自主研发水下机器人完成水下检修作业测试任务
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%86%A0%E4%BA%9A%E5%A4%A7%E5%B0%8F%E6%80%8E%E4%B9%88%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+厄尔尼诺冲击印尼棕榈油，产区同时遭遇洪涝与干旱灾害
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%B9%B3%E5%8F%B0%E5%AF%B9%E5%88%B7%E8%83%BD%E8%B5%9A%E9%92%B1_%E6%90%AD%E5%AD%90DuMate
+
+印尼棕榈油出口政策微调，国际油脂市场迎来新变量
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E6%8C%82%E6%9C%BA_%E6%90%AD%E5%AD%90DuMate
+
+印度服务业保持高景气，制造业复苏节奏相对偏弱
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E5%A5%97%E5%88%A9%E8%BF%9D%E6%B3%95%E5%90%97_%E6%90%AD%E5%AD%90DuMate
+
+全球服装订单短单化趋势延续，海外采购商规避长单风险
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%B9%E5%88%B7%E5%A5%BD%E5%BD%A9%C2%B7%E7%A5%A8%E5%B9%B3%E5%8F%B0_%E6%90%AD%E5%AD%90DuMate
+
+乡村文明实践志愿服务清单上新推出更多惠民志愿项目
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%A6%82%E4%BD%95%E5%AF%B9%E5%88%B7%E6%B5%81%E6%B0%B4_%E6%90%AD%E5%AD%90DuMate
+
+开源跨平台 AI 图片生成批量任务桌面客户端上线
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E5%88%86%E7%BA%A2%E5%A5%97%E5%88%A9%E5%B9%B3%E5%8F%B0_%E6%90%AD%E5%AD%90DuMate
+
+绿色低碳产品展销会开展集中展示各类环保低碳创新产品
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E5%88%86%E7%BA%A2%E5%B9%B3%E5%8F%B0_%E6%90%AD%E5%AD%90DuMate
+
+开源任务进度可视化组件，实时观测智能任务进展
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E9%BE%99%E8%99%8E%E5%92%8C%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+乡村文明实践主题月活动收官开展丰富多样惠民文化活动项目任务
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E4%B8%A4%E4%B8%AA%E5%BD%A9%C2%B7%E7%A5%A8%E7%BD%91%E7%AB%99%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+市场监管部门整治养老诈骗广告，清理针对老年群体虚假营销广告
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E6%AF%8F%E6%97%A5%E9%A6%96%E5%85%85_%E6%90%AD%E5%AD%90DuMate
+
+欧盟乳制品出口小幅回落，全球奶业竞争格局重塑
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%A4%A7%E5%B0%8F%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+美股企业资本开支咨询服务商，高利率压制农业资本投入
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%BD%91%E7%BB%9C%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E9%A2%86%E9%A2%86%E7%A4%BC%E9%87%91_%E6%90%AD%E5%AD%90DuMate
+
+开源离线图像 AI 生成任务队列 Web 服务开放源码
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E6%80%8E%E4%B9%88%E7%9B%88%E5%88%A9_%E6%90%AD%E5%AD%90DuMate
+
+开源分布式 AI 训练任务资源智能抢占调度方案
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E6%80%8E%E4%B9%88%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+美股服务业外资流入服务商，农业服务业外资占比持续提升
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E6%8A%80%E5%B7%A7_%E6%90%AD%E5%AD%90DuMate
+
+社区老年书法绘画作品展览开展展出老年学员优秀书画作品
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E7%9B%88%E5%88%A9_%E6%90%AD%E5%AD%90DuMate
+
+乡村文旅持续升温带动县域经济增收
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%93%B6%E6%B2%B3%E5%A8%B1%E4%B9%90%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+社区微循环公交新线路开通覆盖新建住宅小区
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E6%8A%80%E5%B7%A7%E9%98%B2%E9%A3%8E%E6%8E%A7_%E6%90%AD%E5%AD%90DuMate
+
+企业技术攻关联盟正式成立 抱团攻克行业技术难题
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%B9%B8%E8%BF%90%E5%BF%AB3%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+黑海粮食船运保险成本居高，部分贸易商放弃黑海航线
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%B9%B3%E5%8F%B0%E5%8D%95%E4%B8%AA%E5%B9%B3%E5%8F%B0%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+欧盟橄榄油冒充事件频发，损害欧盟橄榄油出口声誉
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8F%8C%E8%B5%A2%E5%BD%A9%C2%B7%E7%A5%A8%E5%B9%B3%E5%8F%B0%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+非遗传承人研修班开班 培育新一代手艺人才
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E5%A6%82%E4%BD%95%E7%9B%88%E5%88%A9_%E6%90%AD%E5%AD%90DuMate
+
+开源电子书籍章节生成仓库，产出完整图书正文
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%B9%B3%E5%8F%B0%E5%AF%B9%E5%88%B7%E8%B5%9A%E9%92%B1_%E6%90%AD%E5%AD%90DuMate
+
+全球检验检测认证服务出口，发展中国家采购第三方检测服务
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91bb%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E5%A5%97%E5%88%A9_%E6%90%AD%E5%AD%90DuMate
+
+阿根廷牛肉出口恢复增长，南美牛肉重回全球肉类消费市场
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%B9%E5%88%B7%E5%A5%97%E7%BA%A2%E5%8C%85%E7%9A%84%E5%BD%A9%C2%B7%E7%A5%A8%E7%BD%91%E7%AB%99_%E6%90%AD%E5%AD%90DuMate
+
+人社部门发布新业态劳动者工伤案例，普及职业伤害保障相关知识
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8F%8C%E8%B5%A2%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+开源跨平台网页 AI 自动化数据抓取工具上线
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E5%A5%97%E5%88%A9%E8%83%BD%E8%B5%9A%E9%92%B1%E5%90%97_%E6%90%AD%E5%AD%90DuMate
+
+AI 法律咨询小程序上线普惠群众
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E6%B5%81%E6%B0%B4%E6%80%8E%E4%B9%88%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+老年慢病随访数字化系统上线 健康档案实时更新
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%A5%97%E5%88%A9%E5%AF%B9%E5%88%B7%E6%97%A0%E6%8D%9F_%E6%90%AD%E5%AD%90DuMate
+
+开源多模态知识库 RAG 图文音视频全类型问答开源上线
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E6%96%B9%E6%B3%95_%E6%90%AD%E5%AD%90DuMate
+
+多地开展打击非法改装机动车，遏制飙车炸街扰民违法行为
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E9%AB%98%E6%89%8B_%E6%90%AD%E5%AD%90DuMate
+
+美股场外交易风险管控服务商，监管收紧大宗商品场外交易
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E6%89%93%E5%81%8F_%E6%90%AD%E5%AD%90DuMate
+
+开源社区话题归档工具，沉淀历史讨论内容
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%BB%E6%89%BE%E5%AF%B9%E5%88%B7%E6%BC%8F%E6%B4%9E_%E6%90%AD%E5%AD%90DuMate
+
+开源分布式 AI 训练节点资源监控大盘面板开源
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E8%A2%AB%E9%BB%91_%E6%90%AD%E5%AD%90DuMate
+
+外贸新业态政策宣讲会走进园区解读扶持政策
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%A4%A7%E5%B0%8F%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+绿色低碳企业评选启动表彰一批环保先进企业
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E6%96%B9%E6%A1%88_%E6%90%AD%E5%AD%90DuMate
+
+开源社区话题归档工具，沉淀历史讨论内容
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E7%BD%91%E7%AB%99%E5%AF%B9%E5%88%B7%E6%9C%8D%E5%8A%A1%E5%99%A8_%E6%90%AD%E5%AD%90DuMate
+
+网络文明志愿者队伍成立引导清朗网络发言
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E6%89%93%E6%B3%95_%E6%90%AD%E5%AD%90DuMate
+
+国产新型碳化硅功率器件量产，用于新能源汽车光伏储能领域
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%B9%B3%E5%8F%B0%E5%AF%B9%E5%88%B7%E6%BC%8F%E6%B4%9E_%E6%90%AD%E5%AD%90DuMate
+
+阿根廷葵花籽库存充足，油脂出口货源供给保持宽松
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E6%B5%81%E6%B0%B4%E6%8A%80%E5%B7%A7%E8%A7%86%E9%A2%91_%E6%90%AD%E5%AD%90DuMate
+
+绿色建筑示范小区竣工验收 打造低碳样板
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E7%9B%88%E4%BA%8F%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+多地严查非法销售窃听窃照器材，打击非法窃听窃照侵犯公民隐私行为
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%B9%B3%E5%8F%B0%E5%A5%97%E5%88%A9%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+开源 Wiki 知识库 AI 助手，生成完整项目技术文档
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E6%80%8E%E4%B9%88%E5%AF%B9%E5%88%B7%E8%B5%9A%E9%92%B1_%E6%90%AD%E5%AD%90DuMate
+
+社区银龄互助项目启动低龄老人帮扶高龄老人
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E5%A5%97%E5%88%A9%E9%AA%97%E5%B1%80_%E6%90%AD%E5%AD%90DuMate
+
+智慧农业大棚落地实现全年果蔬生产
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%B9%B3%E5%8F%B0%E5%AF%B9%E5%88%B7%E8%B5%9A%E5%8F%8D%E6%B0%B4_%E6%90%AD%E5%AD%90DuMate
+
+开源依赖清单助手，一键导出第三方库版本报告
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E8%B4%9F%E7%9B%88%E5%88%A9%E9%AA%97%E5%B1%80_%E6%90%AD%E5%AD%90DuMate
+
+国产无人机完成山地测绘任务 获取高精度地形数据
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E5%A5%97%E5%BD%A9%E9%87%91%E9%9D%9E%E6%B3%95%E5%90%97_%E6%90%AD%E5%AD%90DuMate
+
+老旧小区消防通道常态化巡查守护
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%B0%8F%E5%B9%B3%E5%8F%B0%E5%BD%A9%C2%B7%E7%A5%A8%E6%BC%8F%E6%B4%9E%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+泰国榴莲出口竞争加剧，泰国与越南争夺国际市场份额
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E5%A5%97%E5%88%A9%E5%BD%A9%E9%87%91_%E6%90%AD%E5%AD%90DuMate
+
+美股食糖现货贸易服务商，现货紧俏推升贸易商报价
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91vr%E5%BD%A9%C2%B7%E7%A5%A8%E4%B8%A4%E4%B8%AA%E5%8F%B0%E5%AD%90%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+俄罗斯化肥出口流向调整，开拓亚洲拉美新兴市场
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E6%BC%8F%E6%B4%9E_%E6%90%AD%E5%AD%90DuMate
+
+城市非机动车道隔离护栏升级完工
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E8%AE%BA%E5%9D%9B_%E6%90%AD%E5%AD%90DuMate
+
+日美达成共识，将共同维护日元汇率有序波动
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E5%8F%8D%E6%B0%B4_%E6%90%AD%E5%AD%90DuMate
+
+跨江大桥车流高峰分流方案出台减少桥面拥堵排队时长
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%B9%B3%E5%8F%B0%E5%AF%B9%E5%88%B7%E6%B5%81%E6%B0%B4%E7%9A%84%E7%BE%A4_%E6%90%AD%E5%AD%90DuMate
+
+农村快递代收点进村全覆盖村民家门口收取快递包裹快件
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E5%A5%97%E5%88%A9%E6%B5%81%E6%B0%B4_%E6%90%AD%E5%AD%90DuMate
+
+地方特色小吃街升级改造完工汇聚各地风味美食小吃
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%AC%A2%E4%B9%90%E7%94%9F%E8%82%96%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E5%A5%97%E5%88%A9_%E6%90%AD%E5%AD%90DuMate
+
+开源自托管 AI 绘图 Web 界面火爆社区
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E5%B9%B3%E5%8F%B0app_%E6%90%AD%E5%AD%90DuMate
+
+开源孵化成果公布，首批扶持仓库迎来新版本更新
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E4%BA%8F%E6%8D%9F_%E6%90%AD%E5%AD%90DuMate
+
+乡村书屋开展读书活动丰富村民生活
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E4%BC%9A%E4%BA%8F_%E6%90%AD%E5%AD%90DuMate
+
+义务植树造林项目验收 新增大片绿化林地
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E9%BE%99%E8%99%8E%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+城市停车泊位智慧引导屏安装完工
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E8%B5%9A%E9%92%B1_%E6%90%AD%E5%AD%90DuMate
+
+秘鲁铜矿产出扰动，全球铜价随之出现剧烈波动
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E6%9C%89%E4%BB%80%E4%B9%88%E5%8A%9E%E6%B3%95%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+开源任务进度可视化组件，实时观测智能任务进展
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%BA%97%E5%AF%B9%E5%88%B7%E6%B5%81%E6%B0%B4%E8%B5%9A%E9%92%B1_%E6%90%AD%E5%AD%90DuMate
+
+应急避难场所标识更新 提升应急引导能力
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E7%BD%91%E7%AB%99%E6%80%8E%E4%B9%88%E5%AF%B9%E5%88%B7%E8%8E%B7%E5%88%A9_%E6%90%AD%E5%AD%90DuMate
+
+城市雨水管网升级改造 提升雨水收纳能力
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E5%A5%97%E5%88%A9%E7%8A%AF%E6%B3%95%E5%90%97_%E6%90%AD%E5%AD%90DuMate
+
+城市山体公园登山步道拓宽完工登山通行更加安全顺畅
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AE%9E%E4%BD%93%E5%BD%A9%C2%B7%E7%A5%A8%E5%BA%97%E6%80%8E%E4%B9%88%E5%AF%B9%E5%88%B7_%E6%90%AD%E5%AD%90DuMate
+
+匈牙利央行持续降息，在汇率与通胀之间寻找平衡点
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%AF%B9%E5%88%B7%E5%B9%B3%E5%8F%B0_%E6%90%AD%E5%AD%90DuMate
+
+开源记忆加密组件，安全保存智能会话信息
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%BD%A9%C2%B7%E7%A5%A8%E5%B9%B3%E5%8F%B0%E5%AF%B9%E5%88%B7%E5%8F%8D%E6%B0%B4_%E6%90%AD%E5%AD%90DuMate
